@@ -9,9 +9,13 @@
 
 ---
 
-## 📸 展示
+## 展示
 
-![YouTube 雙字幕展示](https://github.com/user-attachments/assets/b694ea5f-b4b3-4d76-a87f-85aab04e4601)
+
+
+https://github.com/user-attachments/assets/ef026b63-c26d-4bcd-ad2a-f1c1bd580d69
+
+
 
 ---
 
